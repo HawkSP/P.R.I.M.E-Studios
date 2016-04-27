@@ -81,4 +81,4 @@ We may also disclose information about you if we determine
 that for purposes of national security, law enforcement, or 
 other issues of public importance, disclosure is necessary or appropriate.
 
-If you agree to these: http://goo.gl/forms/3ai8AafxjJ
+
