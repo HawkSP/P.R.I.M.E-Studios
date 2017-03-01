@@ -3,7 +3,7 @@
   ▃▄▃▄  For P.R.I.M.E Studios▄▃▄▃
 ▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃  
 
-Welcome To The Server Privacy Policy: Below you will find R.R.I.M.E Studios's
+Welcome To The Privacy Policy: Below you will find R.R.I.M.E Studios's
 Privacy, which is owned and ran by HawkSP
 
 Collection and Use of Personal Information
